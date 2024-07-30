@@ -1,3 +1,3 @@
 ## Olá, seja muito bem-vindo(a) ao meu perfil!! 👋
 
-![](https://tenor.com/pt-BR/view/luciano-eduardo-bom-dia-gif)
+![](https://media1.tenor.com/m/eB19EPf8_3EAAAAC/luciano-eduardo-bom-dia.gif)
